@@ -4,8 +4,8 @@
 
 ## Developed By
 
-* **Name:** Joel John Jobinse
-* **Register No:** 212223240062
+* **Name:** Chintala Aman Monty
+* **Register No:** 212224040054
 
 ## Aim
 
